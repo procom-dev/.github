@@ -1,3 +1,5 @@
+![procom.dev](https://procom.dev/wp-content/uploads/2024/05/procomdev.jpg)
+
 ## we develop innovative digital tools to empower progressive organizations and social movements globally
 
 at procom.dev, we develop innovative digital tools to empower progressive organizations and social movements globally. our mission is to drive social change through cutting-edge technology
